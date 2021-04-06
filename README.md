@@ -8,4 +8,5 @@ Actualmente estoy trabajando como técnico electrónico en una Fábrica de Quilm
 
 Me gusta pasar tiempo en familia, mirar series y peliculas, jugar al futbol y degustar muchas cervezas :P
 
+
 Espero tengamos una muy buena cursada entre todos!
